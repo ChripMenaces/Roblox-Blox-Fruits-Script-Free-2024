@@ -1,2 +1,1 @@
-# Roblox-Blox-Fruits-Script-Free-2024
-Roblox Blox Fruits Script Free 2024
+[<img src="https://i.imgur.com/fwoCIGV.jpeg"/>](https://goo.su/tUtw)
